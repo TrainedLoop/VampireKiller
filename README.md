@@ -6,6 +6,8 @@ Esteja avontade para participar.
 O intuito é troca de conhecimento e experiencia da galera que participar.
 Ps: Console Application pra ficar mais vintage
 
+Grupo no FB
+https://www.facebook.com/groups/385812028257048/
 
 Regras/Dicas
 
